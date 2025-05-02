@@ -58,4 +58,4 @@ Cette segmentation est destinée à améliorer les campagnes marketing et à per
 
 **Noureddine YAMOUNI**  
 Ingénieur en Intelligence Artificielle – Data Scientist  
-📫 Contact : yamouninoureddine99@example.com
+📫 Contact : yamouninoureddine99@gmail.com
